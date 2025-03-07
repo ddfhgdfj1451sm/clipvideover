@@ -1,11 +1,11 @@
 Link Alice Heavy đang rất hot sau khi đoạn clip ấy bị lộ. Nếu là fan của Free Fire thì bạn không thể không biết đến cô nàng Alice Heavy xinh đẹp với giọng hát mê đắm lòng người đúng không? Đúng vậy, người bạn đang nói đến là cô gái đó. Sở hữu lượng fan hùng hậu nhờ cách nói chuyện dễ thương và ngoại hình xinh xắn.
 
-Nghe thì có vẻ nhiều tò mò nhưng sự thật về em ấy rất thú vị, theo mình là mong Link alice heavy ngay.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
 
-ALICE HEAVY LÀ AI?
-Nhanh chóng trở thành cô gái có sức hút trong cộng đồng nữ Streamer Free Fire Việt Nam dù mới đầu quân cho đội Heavy. Cô ấy có 150.000 người đăng ký trên kênh youtube của mình, và trên IG, cô ấy cũng có con số ấn tượng lên đến 25.000 người theo dõi. Nhìn vào ai cũng ngưỡng mộ cô nàng khi vừa mới nổi đã đạt được những thành tích mà nhiều người phải mất nhiều thời gian mới đạt được.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
 
-Cô nàng tên thật là Nguyễn Trịnh Xuân Hoài, sinh năm 2003. Ngoại hình của cô nàng khá ấn tượng khi sở hữu gương mặt bầu bĩnh và chiếc cằm xinh xắn. Vậy tại sao cô ấy lại nổi tiếng như vậy? Cô ấy có phải là một tay chơi game siêu đỉnh, hay chỉ là khuôn mặt xinh xắn, hay giọng nói đáng yêu. Thật ngạc nhiên khi cô ấy sở hữu tất cả những thứ này, được mọi người yêu mến nên cô ấy nhanh chóng trở nên nổi tiếng hơn.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
 
 Có thể nói cô khá có duyên với nghề, tuy còn trẻ nhưng hôm nay cô có thể đảm nhận tốt vai trò của mình. Không những vậy cô còn được mọi người yêu mến và ủng hộ nhiệt tình. Tuy vào nghề sớm không phải ai cũng làm được như vậy nhưng trong suốt quá trình đó, cô cũng cố gắng hoàn thiện bản thân để ngày càng hoàn thiện hơn.
 
